@@ -1,1 +1,1 @@
-# Lesance
+# Lesance Studio
